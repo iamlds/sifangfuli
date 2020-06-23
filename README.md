@@ -1,4 +1,3 @@
-私房福利网址，私房福利的拼音：
+移动宽带和手机端UC浏览器会屏蔽网址，可以换一个浏览器或者WiFi试试：
 # 网址：<a href="https://www.sifangfuli.com/" rel="nofollow">www.sifangfuli.com</a>
 # 备用：<a href="https://www.115kami.com/" rel="nofollow">www.115kami.com</a>
-主网址打不开，可以试试备用；都打不开，手机端可以换一个浏览器再试试；还打不开，手机端换一个网络环境再试试。
